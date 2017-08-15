@@ -1,1 +1,1 @@
-# shruthiresume.github.io
+# shruthitr.github.io
